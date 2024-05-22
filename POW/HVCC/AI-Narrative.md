@@ -1,3 +1,6 @@
+> [!NOTE]
+> This narrative was created using OpenAI/ChatGPT. It is being proofread again, however is true.
+
 ### The Mother's Day Massacre at Hickory Valley Christian Church
 
 Hickory Valley Christian Church, a predominantly white congregation operating Hamilton Heights Christian Academy, a private high school, was the site of a horrific massacre on Mother's Day, May 12, 2024. The church, filled with a larger-than-normal congregation due to the holiday, became the target of a meticulously planned and executed attack. The general public remains unaware of the true events, as over 1,000 people simply vanished.
