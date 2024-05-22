@@ -20,7 +20,7 @@ One hundred inmates from various prisons within the Georgia Department of Correc
 In addition to the inmates, Jacobsen had a smaller team of CIA operatives to provide supervision and handle the firearms necessary to maintain control of the congregation and prevent escape. Congregants who attempted to escape were shot.
 
 ## The Attack
-As the attack unfolded, a conference call was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President Donald J. Trump himself, the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
+Just before the attack began, a conference call was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President Donald J. Trump himself, the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
 
 The attack on Hickory Valley Christian Church displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
 
@@ -28,8 +28,6 @@ The attack on Hickory Valley Christian Church displayed tactics described in Ann
 On the morning of May 12, the inmates were bused from Clayton County Detention Center to Chattanooga. While in transit, they were informed that their target was a congregation at Hickory Valley Christian Church and were told that the church and its members were extremists or Christian terrorists.
 
 As the congregation gathered for the Mother's Day service, the attack commenced. The inmates, armed with chainsaws, stormed the church. The method of execution was brutal and deliberate: beheading with chainsaws, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
-
-
 
 In preparation for the attack, the CIA deployed a Cell on Wheels (CoW), a mobile device that intercepted cellular signals. Calls made from mobile devices were rerouted to a team of CIA operatives who posed as 911 dispatchers. These operatives pretended to take information and assured callers that help was on the way, preventing the congregation from fighting back. Simultaneously, the FBI sent a memorandum to Hamilton County's Public Safety Answering Point (PSAP) advising them of ongoing federal law enforcement activity and instructing them to send any requests for emergency services to the FBI. Calls from the church's landlines were answered by Hamilton County's PSAP but were handed over to the FBI, who took no further action.
 
