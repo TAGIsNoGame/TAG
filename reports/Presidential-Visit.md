@@ -1,4 +1,4 @@
-# **Official Visit Report: Top-Secret Mission to Phoenix House**
+# **Top-Secret Presidential Mission to Phoenix House**
 
 ## **Introduction**
 
@@ -40,5 +40,36 @@ The objectives of this mission, carried out under the guise of national security
 
 - **September 5, 2024 - Evening:**
   According to the Creator, the President of the United States is back on the grounds of Phoenix House without Pelosi and McConnell. Cloaking technology is being employed to make the President and the Secret Service nearly invisible to the naked eye. Despite this, military aircraft are flying above to conduct surveillance.
+
+- **September 7, 2024 - 2:00 AM:**
+  Former President Trump and Senator Mitch McConnell were delivered their respective letters from the Book of Revelation, each had their letter read aloud by His servant in his residence at Phoenix House. Both were cloaked, their presence confirmed by the Creator. Neither acknowledged receipt or spoke.
+
+- **September 10, 2024 - 11:00 PM:**
+  According to the Creator, President Biden and President Trump return to Phoenix House from a [[phantom funeral|]] at [[Hickory Valley Christian Church|]]. Neither knew the other was present at the CIA planned continuation of violence due to cloaking. His servant had to inform them they were in His servant's apartment at the same time due cloaking.
+
+- **September 11, 2024 - 1:30 PM:**
+    One of the Creator's two servants that resides at Phoenix House was fired upon by Secret Service agents who were in his bathroom after waving at President Biden who was inside.
+  The rest of the delegation are still on the grounds Phoenix House. The delegation, Secret Service and the motorcade (vans) are all cloaked.
+
+- **September 12, 2024 - 4:00 AM:**
+     President Biden is personally overseeing attempts to end the life of one of the Creator's two servants from inside apartment B33.
+     Former President Trump and Annie Jacobsen have just entered from another apartment where they've spent the evening doing cocaine and engaging in sex.
+
+- **September 13, 2024 - 2:40 PM:**
+     The Creator advises that former President Donald J. Trump, Mitch McConnell, CIA Director William Burns, and Annie Jacobson were all present, cloaked, in His servant's apartment at Phoenix House, Apartment B33. Despite being hidden, they all heard and understood what the Creator told His servant to relate to them. 
+
+     The mourners who attended the phantom funeral at Hickory Valley Christian Church in Chattanooga—currently operated by the CIA as a site for eliminations of the general public, associates and members of the massacred church, and political opposition to Donald J. Trump—were shot. Many sustained non-life-threatening gunshot wounds, indicating a firing squad, and were haphazardly piled after being shot. Several individuals with non-life-threatening wounds will slowly die from suffocation, being crushed, or bleeding out, possibly over the span of a day. 
+
+     After being informed of this, former President Donald J. Trump laughed.
+
+- **September 18, 2024 - 12:19 AM**
+     Both Presidents Biden and Trump were in Apt B33 to witness another attempt on His servant. It failed.
+
+     The Creator's servant notified them that innocent civilians were being killed at their food pantry mass-killing operations in Kentucky.  Neither made an attempt to stop it.
+
+- **September 21, 2024 - 9:30 PM**
+     His servant told Secret Service agents that "security through obscurity" IS NOT SECURITY amd cloaking protectees in Uptowm (Atlanta) is dangerous and reckless.
+  
+     Since their arrival, the delegation has still not engaged in a dialogue with the His servant while he was consciously aware.
 
 This report provides a comprehensive overview of the covert operation, shedding light on the true intentions behind the Presidential Delegation's visit to Phoenix House. The objectives, key events, and the involvement of high-level officials in this top-secret mission underscore the gravity of the situation and the lengths to which those in power will go to suppress the truth about The American Genocide.
